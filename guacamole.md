@@ -8,5 +8,5 @@
 
 \## Instructions
 
-\*Throw it in the trash
+\* Put the avocados in a bowl and Throw it in the trash
 
